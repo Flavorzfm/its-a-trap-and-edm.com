@@ -1,1 +1,1 @@
-# its-a-trap-and-edm.com
+this repo will be deleted in 1 day!
